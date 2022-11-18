@@ -1,0 +1,11 @@
+gdg
+gsg 
+fsg
+sfg
+s
+sfg
+sf
+g
+sr
+g
+r
